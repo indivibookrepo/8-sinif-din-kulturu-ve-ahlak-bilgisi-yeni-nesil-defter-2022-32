@@ -1,0 +1,1 @@
+# 8-sinif-din-kulturu-ve-ahlak-bilgisi-yeni-nesil-defter-2022-32
